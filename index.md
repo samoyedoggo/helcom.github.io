@@ -17,7 +17,7 @@
 
 - 躁鬱サモエドさん(創立者、インフラエンジニア)[twitter](https://twitter.com/gimmeadog)
 - ざわざわさん(webエンジニア)　[twitter](https://twitter.com/XRLrqRzDgr4EYoS)
+- みどりさん(シェアハウス運営) [twitter](https://twitter.com/midorinohito333)
 - Aさん(webエンジニア)
 - Hさん(財務コンサル運営)
-- Mさん(シェアハウス運営)
 - Sさん(シェアハウス運営)
